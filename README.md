@@ -1,0 +1,1 @@
+# kashinfuu.github.io
